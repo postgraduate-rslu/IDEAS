@@ -1,10 +1,8 @@
 # IDEAS
 科技思想类书籍
 ### 浪潮之巅
-上册链接：https://pan.baidu.com/s/1273eqrLrhY6avWx0hSa_bw 
-提取码：v7gv 
-下册链接：https://pan.baidu.com/s/1njvzxWUgWAzPfblUFyUwIA 
-提取码：iu5f 
+上册链接：https://pan.baidu.com/s/1273eqrLrhY6avWx0hSa_bw 提取码：v7gv  
+下册链接：https://pan.baidu.com/s/1njvzxWUgWAzPfblUFyUwIA 提取码：iu5f 
 ### 生命3.0
 链接：https://pan.baidu.com/s/1AeRfkY2pi-mByNSijlGVHg 
 提取码：azyb 
